@@ -10,4 +10,4 @@
 
 这些链接为您提供最新的国产、亚洲、美日韩等丰富的AV资源，包含高清中文字幕和多种视频内容，满足您的需求，尽情享受！
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/thuoc20250709/thuoc7 ）</span>
